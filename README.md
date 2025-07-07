@@ -24,7 +24,7 @@ I'm an experienced IT professional with over 3 years in the industry, currently 
 
 📬 **Let's Connect:**
 - 📧 Email: vijaynariyal21@gmail.com
-- 🔗 [LinkedIn](https://linkedin.com/in/vijaynariyal)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/vijay-nariyal-4a4719171)
 - 🧰 Explore my projects below to see what I’ve been working on!
 
 
